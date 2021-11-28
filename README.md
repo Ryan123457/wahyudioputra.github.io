@@ -1,1 +1,1 @@
-Jangan asal ambil, izin dulu!
+Upswteks
